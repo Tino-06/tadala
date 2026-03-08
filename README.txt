@@ -1,1 +1,1 @@
-I am the one whose laptop was got a hardware error.
+I am the one whose laptop got a hardware error.
